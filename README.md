@@ -1,0 +1,1 @@
+# inventaire-magique-fr-96
